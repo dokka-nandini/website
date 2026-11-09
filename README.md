@@ -14,3 +14,8 @@ just seee and tell me ok you can apply i will apply
 
 
 ok leave it i will tc 7
+
+
+arey swami i am filling it after that every thing you just see 
+later you say ok then i will apply
+
